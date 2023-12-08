@@ -5,6 +5,7 @@
 - 📫 How to reach me ...
 
 - +92 337 8619 867
-- 
+- hmtahirhassan@gmail.com
+- https://hafiztahir.my.canva.site
 
 
