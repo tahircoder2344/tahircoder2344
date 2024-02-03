@@ -6,6 +6,6 @@
 
 - +92 337 8619 867
 - chatwithme2344@gmail.com
-- https://hafiztahir.my.canva.site
+- https://tahircoder2344.github.io/Portfolio
 
 
