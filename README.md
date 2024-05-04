@@ -4,8 +4,8 @@
 - 💞️ I’m looking to get a better source of learning Javascript
 - 📫 How to reach me ...
 
-- +92 337 8619 867
+- +92 328 8112 876
 - chatwithme2344@gmail.com
-- https://tahircoder2344.github.io/Portfolio
+- https://hmtahir.webflow.io
 
 
